@@ -7,3 +7,5 @@ Saiba mais no link:
 Gostou do curso? Quer mais? Ajude com uma doação, até um café é valido.i
 
 Doação do paypal: www.paypal.com
+
+Outros cursos em: [cursos](http://willianjusten.teachable.com))
